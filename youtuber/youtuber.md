@@ -3,6 +3,10 @@
 - [https://www.youtube.com/@geohotarchive]
 
 # Tech life
+-
 
 # Math
+-
 
+# Classical music
+-
