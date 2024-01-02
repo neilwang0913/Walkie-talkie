@@ -3,7 +3,7 @@
 - [https://www.youtube.com/@geohotarchive]
 
 # Tech life
--
+- [https://youtu.be/TSBOBJsdEuY?si=8SayQ9bB_kENvffD]
 
 # Math
 -
